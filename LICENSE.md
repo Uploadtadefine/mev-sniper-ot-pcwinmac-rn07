@@ -1,4 +1,4 @@
-# 
+# Ultime MEV sniper bot extensions pour Mac OS | Sécurisé MEV sniper bot extensions pour PC Windows. Avec analyse de données et optimisation du prix du gaz — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
